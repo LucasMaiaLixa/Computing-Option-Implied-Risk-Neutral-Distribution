@@ -14,7 +14,7 @@ List of papers that inspired me to create my case study
 ## Contact info
 Email: l.maialixa@gmail.com
 
-[Likedin](https://www.linkedin.com/in/lucasmaialixa/)
+[Linkedin](https://www.linkedin.com/in/lucasmaialixa/)
 
 
 
